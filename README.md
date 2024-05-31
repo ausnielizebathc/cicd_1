@@ -1,6 +1,2 @@
 # cicd_1
-tgrfghg
-dhjfjygkhlklk
-gjhjh
-hfhgngjmhjm
-ksdggblkabdlkvba
+gdksjagbdkaB<DMba,
